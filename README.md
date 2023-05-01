@@ -1,3 +1,1 @@
-### Hi there 👋
-
-we are starting to understand it 
+we are here to understand
